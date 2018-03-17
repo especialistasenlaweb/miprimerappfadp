@@ -1,2 +1,0 @@
-# miprimerappfadp
-miprimer
